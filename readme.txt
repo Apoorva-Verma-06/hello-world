@@ -1,3 +1,3 @@
-Hello, I'm Harirai Mahajan. 
+Hey, I'm Harirai Mahajan. 
 IIT BHU, Varanasi
 U.P., India.
